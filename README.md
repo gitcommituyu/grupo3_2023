@@ -1,4 +1,4 @@
-## grupo miercoles, jueve sy viernes 09:30 - 12:30
+## grupo miercoles viernes sabado 09:30 - 12:30 
 
 # github.com
 
